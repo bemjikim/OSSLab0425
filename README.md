@@ -1,1 +1,1 @@
-Hi, My name is bumjin_Kim
+21900104, 11
